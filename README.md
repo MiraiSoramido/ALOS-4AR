@@ -7,4 +7,9 @@
 ☆しっかりとしたクオリティの3Dモデルをご覧になりたい方は先ほどご紹介した本家様(下記①)をご覧ください！
 
 ①
+
+https://kizta-aerospace.booth.pm/items/5881321
+
+AR部分に関して参考にさせていただいたnote記事
+
 https://note.com/ishiki_emo/n/n108895685e22
